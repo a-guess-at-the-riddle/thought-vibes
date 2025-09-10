@@ -3,7 +3,8 @@ Tʜᴇ Mɪʀʀᴏʀ ᴏꜰ ᴛʜᴇ Sᴘʜɪɴx ❦ \* { font-family: Georgia, C
 ![original draft](https://htmlpreview.github.io/?https://github.com/a-guess-at-the-riddle/medium-archive/blob/main/draft_T---M-------------S----x---b8a33275da4a.html
 )
 
-![thoughvibe](https://youtu.be/atSES8GZwiQ?feature=shared)
+![](https://youtu.be/atSES8GZwiQ?feature=shared)
+[![thoughvibe](http://img.youtube.com/vi/atSES8GZwiQ/0.jpg)](http://www.youtube.com/watch?v=YatSES8GZwiQ)
 
 # Tʜᴇ Mɪʀʀᴏʀ ᴏꜰ ᴛʜᴇ Sᴘʜɪɴx ❦
 
